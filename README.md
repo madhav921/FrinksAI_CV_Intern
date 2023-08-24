@@ -1,0 +1,1 @@
+# FrinksAI_CV_Intern
